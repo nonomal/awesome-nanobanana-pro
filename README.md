@@ -14,8 +14,6 @@ Consider subscribing to [this free newsletter](https://zerolu.substack.com/p/hel
 
 ### Sponsor One: [thesorawatermarkremover.com](https://thesorawatermarkremover.com)
 
-**🎄 Cyber Week Discount: Use `CYBER10` bfore `Dec 8th,2025` to get 10% off at checkout! 🎄**
-
 [<img width="600" height="265" alt="image" src="https://github.com/user-attachments/assets/b087445c-d3ad-4152-8e28-33a5ca49d4b5" />](https://thesorawatermarkremover.com)
 
 
